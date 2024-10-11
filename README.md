@@ -1,0 +1,2 @@
+# mati
+destruir o mundo
